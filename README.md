@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @drukenmonk
 - 👀 I’m interested in DATA SCIENCE REATED ROLES
-- 🌱 I’m currently LOKKING FOR AN OPPERTUNITY
+- 🌱 I’m currently LO0KING FOR AN OPPERTUNITY
 - 💞️ I’m looking to collaborate on DIFFERNENT PROJECTS TO BULID U MY KNOWLEGEDE
 - 📫 How to reach me https://www.linkedin.com/in/sachin-jose-09643815a/ OR SACHINJOSEETTUKATTIL@GMAIL.COM
 - 😄 Pronouns: HE/HIM
